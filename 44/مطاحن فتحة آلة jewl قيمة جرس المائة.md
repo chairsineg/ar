@@ -331,4 +331,14 @@ Below is the link to the proposed draft legislation that is yet to be voted on,w
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%85%D8%B7%D8%A7%D8%AD%D9%86+%D9%81%D8%AA%D8%AD%D8%A9+%D8%A2%D9%84%D8%A9+jewl+%D9%82%D9%8A%D9%85%D8%A9+%D8%AC%D8%B1%D8%B3+%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D8%A9)
 
-{{links}}
+* [ازتيك مطحنة أبريل 24 طن](../44/%D8%A7%D8%B2%D8%AA%D9%8A%D9%83%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A3%D8%A8%D8%B1%D9%8A%D9%84%2024%20%D8%B7%D9%86.md)
+
+* [سعر 5300 بقيادة مصباح سقف](../44/%D8%B3%D8%B9%D8%B1%205300%20%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9%20%D9%85%D8%B5%D8%A8%D8%A7%D8%AD%20%D8%B3%D9%82%D9%81.md)
+
+* [سحق sbm طحن مطحنة في قطر](../44/%D8%B3%D8%AD%D9%82%20sbm%20%D8%B7%D8%AD%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D9%81%D9%8A%20%D9%82%D8%B7%D8%B1.md)
+
+* [معدات الرمال من صنع آلة](../44/%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84%20%D9%85%D9%86%20%D8%B5%D9%86%D8%B9%20%D8%A2%D9%84%D8%A9.md)
+
+* [مصانع المانيا للخراطة المعادن](../41/%D9%85%D8%B5%D8%A7%D9%86%D8%B9%20%D8%A7%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7%20%D9%84%D9%84%D8%AE%D8%B1%D8%A7%D8%B7%D8%A9%20%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%86.md)
+
+* [کره جنوبی سنگ شکن موبایل](../41/%DA%A9%D8%B1%D9%87%20%D8%AC%D9%86%D9%88%D8%A8%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D9%88%D8%A8%D8%A7%DB%8C%D9%84.md)

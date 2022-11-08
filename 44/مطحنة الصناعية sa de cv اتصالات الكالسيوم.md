@@ -210,4 +210,14 @@ Gregorio Anaya González está en Facebook.Únete a Facebook para conectar con G
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%85%D8%B7%D8%AD%D9%86%D8%A9+%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D9%8A%D8%A9+sa+de+cv+%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA+%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%85)
 
-{{links}}
+* [رخيصة تصميم هيكل](../43/%D8%B1%D8%AE%D9%8A%D8%B5%D8%A9%C2%A0%D8%AA%D8%B5%D9%85%D9%8A%D9%85%20%D9%87%D9%8A%D9%83%D9%84.md)
+
+* [جعل كسارة اليدوية](../44/%D8%AC%D8%B9%D9%84%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%8A%D8%A9.md)
+
+* [مطاحن الكرة المستخدمة للبيع لطحن من الكالسيوم](../44/%D9%85%D8%B7%D8%A7%D8%AD%D9%86%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D8%A9%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9%20%D9%84%D8%B7%D8%AD%D9%86%20%D9%85%D9%86%20%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%85.md)
+
+* [الكسارة deindonesia](../45/%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20deindonesia.md)
+
+* [سنگ شکن دانلود ماشین تصویر](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF%20%D9%85%D8%A7%D8%B4%DB%8C%D9%86%20%D8%AA%D8%B5%D9%88%DB%8C%D8%B1.md)
+
+* [تأثير محطم المستخدمة بيع مصنع](../43/%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D8%A9%20%D8%A8%D9%8A%D8%B9%20%D9%85%D8%B5%D9%86%D8%B9.md)

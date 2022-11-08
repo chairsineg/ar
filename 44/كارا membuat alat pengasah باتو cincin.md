@@ -161,4 +161,14 @@ yaitu membuat alat untuk pembuatan pakan ternak jenis pellet mulai dengan pengad
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%83%D8%A7%D8%B1%D8%A7+membuat+alat+pengasah+%D8%A8%D8%A7%D8%AA%D9%88+cincin)
 
-{{links}}
+* [نظرة عامة من بذور كسارة](../44/%D9%86%D8%B8%D8%B1%D8%A9%20%D8%B9%D8%A7%D9%85%D8%A9%20%D9%85%D9%86%20%D8%A8%D8%B0%D9%88%D8%B1%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [tzj96 3 عامل تصفية الضغط على زيكو منجم الفحم النباتي إعداد](../43/tzj96%203%20%D8%B9%D8%A7%D9%85%D9%84%20%D8%AA%D8%B5%D9%81%D9%8A%D8%A9%20%D8%A7%D9%84%D8%B6%D8%BA%D8%B7%20%D8%B9%D9%84%D9%89%20%D8%B2%D9%8A%D9%83%D9%88%20%D9%85%D9%86%D8%AC%D9%85%20%D8%A7%D9%84%D9%81%D8%AD%D9%85%20%D8%A7%D9%84%D9%86%D8%A8%D8%A7%D8%AA%D9%8A%20%D8%A5%D8%B9%D8%AF%D8%A7%D8%AF.md)
+
+* [محطم الابتدائي محطم كسارة الصخور](../42/%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A6%D9%8A%20%D9%85%D8%AD%D8%B7%D9%85%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1.md)
+
+* [چه مقدار سنگ شکن سیمان است](../42/%DA%86%D9%87%20%D9%85%D9%82%D8%AF%D8%A7%D8%B1%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%DB%8C%D9%85%D8%A7%D9%86%20%D8%A7%D8%B3%D8%AA.md)
+
+* [الاحتكاك القرص طاحونة](../43/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%83%D8%A7%D9%83%20%D8%A7%D9%84%D9%82%D8%B1%D8%B5%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9.md)
+
+* [محطم المحجر مصنع](../43/%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D8%AD%D8%AC%D8%B1%20%D9%85%D8%B5%D9%86%D8%B9.md)

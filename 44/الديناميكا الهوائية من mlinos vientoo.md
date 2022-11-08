@@ -190,4 +190,14 @@ Descansa mucho.Trata de dormir lo más que puedas,mínimo 8 horas por noche.Pero
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D8%AF%D9%8A%D9%86%D8%A7%D9%85%D9%8A%D9%83%D8%A7+%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A6%D9%8A%D8%A9+%D9%85%D9%86+mlinos+vientoo)
 
-{{links}}
+* [تشييد مرافق للتمويل المعدات](../45/%D8%AA%D8%B4%D9%8A%D9%8A%D8%AF%20%D9%85%D8%B1%D8%A7%D9%81%D9%82%20%D9%84%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%84%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA.md)
+
+* [كسارات السن انواعها](../41/%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B3%D9%86%20%D8%A7%D9%86%D9%88%D8%A7%D8%B9%D9%87%D8%A7.md)
+
+* [ماكينة جمع الحجارة](../41/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9%20%D8%AC%D9%85%D8%B9%20%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%B1%D8%A9.md)
+
+* [صنایع ریخته گری آلیاژ سنگ شکن سنگ](../41/%D8%B5%D9%86%D8%A7%DB%8C%D8%B9%20%D8%B1%DB%8C%D8%AE%D8%AA%D9%87%20%DA%AF%D8%B1%DB%8C%20%D8%A2%D9%84%DB%8C%D8%A7%DA%98%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [العمل التسخين الاسمنت](../45/%D8%A7%D9%84%D8%B9%D9%85%D9%84%20%D8%A7%D9%84%D8%AA%D8%B3%D8%AE%D9%8A%D9%86%20%D8%A7%D9%84%D8%A7%D8%B3%D9%85%D9%86%D8%AA.md)
+
+* [ملح الصخور كسارة للبيع](../45/%D9%85%D9%84%D8%AD%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9.md)

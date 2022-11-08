@@ -180,4 +180,14 @@ Watch the video «Pada Zaman Dahulu 2014 Bangau Ajaib Episode 1» uploaded by Ve
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D9%88%D9%82%D8%AA+%D9%85%D8%AD%D8%B7%D9%85+%D8%B7%D8%AD%D9%86+dahulu)
 
-{{links}}
+* [سحق وحدات محطة](../44/%D8%B3%D8%AD%D9%82%20%D9%88%D8%AD%D8%AF%D8%A7%D8%AA%20%D9%85%D8%AD%D8%B7%D8%A9.md)
+
+* [ملء طريقة التعدين في تطوير منجم للذهب في جنوب أفريقيا](../45/%D9%85%D9%84%D8%A1%20%D8%B7%D8%B1%D9%8A%D9%82%D8%A9%20%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D9%81%D9%8A%20%D8%AA%D8%B7%D9%88%D9%8A%D8%B1%20%D9%85%D9%86%D8%AC%D9%85%20%D9%84%D9%84%D8%B0%D9%87%D8%A8%20%D9%81%D9%8A%20%D8%AC%D9%86%D9%88%D8%A8%20%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7.md)
+
+* [دستگاههای سنگ شکن برای فروش هند](../42/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D9%81%D8%B1%D9%88%D8%B4%20%D9%87%D9%86%D8%AF.md)
+
+* [chancador المصنعين headcrusher قصيرة](../45/chancador%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D9%8A%D9%86%20headcrusher%20%D9%82%D8%B5%D9%8A%D8%B1%D8%A9.md)
+
+* [كسارة شفرة الأسعار](../41/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%B4%D9%81%D8%B1%D8%A9%20%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1.md)
+
+* [وأكد المقطعي](../43/%D9%88%D8%A3%D9%83%D8%AF%20%D8%A7%D9%84%D9%85%D9%82%D8%B7%D8%B9%D9%8A.md)

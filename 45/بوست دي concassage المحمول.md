@@ -220,4 +220,14 @@ Mar 8,2018 Corporate Responsibility is an integral part of corporate strategy.We
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A8%D9%88%D8%B3%D8%AA+%D8%AF%D9%8A+concassage+%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84)
 
-{{links}}
+* [برنامج تصنيع الريمكس](../42/%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC%20%D8%AA%D8%B5%D9%86%D9%8A%D8%B9%20%D8%A7%D9%84%D8%B1%D9%8A%D9%85%D9%83%D8%B3.md)
+
+* [الصين سبائك الحديد محطم](../42/%D8%A7%D9%84%D8%B5%D9%8A%D9%86%20%D8%B3%D8%A8%D8%A7%D8%A6%D9%83%20%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [proposel محطة الرمل الكلي في الهند](../43/proposel%20%D9%85%D8%AD%D8%B7%D8%A9%20%D8%A7%D9%84%D8%B1%D9%85%D9%84%20%D8%A7%D9%84%D9%83%D9%84%D9%8A%20%D9%81%D9%8A%20%D8%A7%D9%84%D9%87%D9%86%D8%AF.md)
+
+* [alogo مطاحن المطرقة homber](../44/alogo%20%D9%85%D8%B7%D8%A7%D8%AD%D9%86%20%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%82%D8%A9%20homber.md)
+
+* [سنگ شکن سنگ تولید کننده ماشین](../42/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%AA%D9%88%D9%84%DB%8C%D8%AF%20%DA%A9%D9%86%D9%86%D8%AF%D9%87%20%D9%85%D8%A7%D8%B4%DB%8C%D9%86.md)
+
+* [إطار الكسارة الطاقة](../44/%D8%A5%D8%B7%D8%A7%D8%B1%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9.md)

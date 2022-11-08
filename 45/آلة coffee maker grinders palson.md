@@ -361,4 +361,14 @@ Palson EX428W * 230Volt for overseas use Supreme Electric Coffee Maker * Lifts o
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A2%D9%84%D8%A9+coffee+maker+grinders+palson)
 
-{{links}}
+* [صيانة بخاخ سيور ناقلة](../44/%D8%B5%D9%8A%D8%A7%D9%86%D8%A9%20%D8%A8%D8%AE%D8%A7%D8%AE%20%D8%B3%D9%8A%D9%88%D8%B1%20%D9%86%D8%A7%D9%82%D9%84%D8%A9.md)
+
+* [الجير الماء آلة](../42/%D8%A7%D9%84%D8%AC%D9%8A%D8%B1%20%D8%A7%D9%84%D9%85%D8%A7%D8%A1%20%D8%A2%D9%84%D8%A9.md)
+
+* [مشغلي آلات الكسارات](../44/%D9%85%D8%B4%D8%BA%D9%84%D9%8A%20%D8%A2%D9%84%D8%A7%D8%AA%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA.md)
+
+* [الصين كسارة حيث لشراء](../41/%D8%A7%D9%84%D8%B5%D9%8A%D9%86%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%AD%D9%8A%D8%AB%20%D9%84%D8%B4%D8%B1%D8%A7%D8%A1.md)
+
+* [صور متيجي الجزائري صاحب مطاحن للفرينة السفينة بسلامندربمستغانم](../41/%D8%B5%D9%88%D8%B1%20%D9%85%D8%AA%D9%8A%D8%AC%D9%8A%20%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%20%D8%B5%D8%A7%D8%AD%D8%A8%20%D9%85%D8%B7%D8%A7%D8%AD%D9%86%20%D9%84%D9%84%D9%81%D8%B1%D9%8A%D9%86%D8%A9%20%D8%A7%D9%84%D8%B3%D9%81%D9%8A%D9%86%D8%A9%20%D8%A8%D8%B3%D9%84%D8%A7%D9%85%D9%86%D8%AF%D8%B1%D8%A8%D9%85%D8%B3%D8%AA%D8%BA%D8%A7%D9%86%D9%85.md)
+
+* [سنگ شکن بتن مانوئل](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A8%D8%AA%D9%86%20%D9%85%D8%A7%D9%86%D9%88%D8%A6%D9%84.md)

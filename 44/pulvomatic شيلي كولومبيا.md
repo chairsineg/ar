@@ -170,4 +170,14 @@ We at R.M.Murdock Company have used Bearing Distributors,Inc.as our bearing expe
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=pulvomatic+%D8%B4%D9%8A%D9%84%D9%8A+%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7)
 
-{{links}}
+* [تعريف المعادن](../43/%D8%AA%D8%B9%D8%B1%D9%8A%D9%81%20%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%86.md)
+
+* [illitration كسارة الحصاة](../43/illitration%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%A9.md)
+
+* [المعدات اللازمة مجال الرمال](../44/%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D9%84%D8%A7%D8%B2%D9%85%D8%A9%20%D9%85%D8%AC%D8%A7%D9%84%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84.md)
+
+* [پنوماتیک می تواند برنامه های سنگ شکن](../42/%D9%BE%D9%86%D9%88%D9%85%D8%A7%D8%AA%DB%8C%DA%A9%20%D9%85%DB%8C%20%D8%AA%D9%88%D8%A7%D9%86%D8%AF%20%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [يامادا البيض الكسارة](../43/%D9%8A%D8%A7%D9%85%D8%A7%D8%AF%D8%A7%20%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [الرمال ، vsi](../45/%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84%20%D8%8C%20vsi.md)

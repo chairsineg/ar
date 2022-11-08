@@ -191,4 +191,14 @@ Issuu is a digital publishing platform that makes it simple to publish magazines
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D8%B5%D9%88%D8%B1%D8%A9+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+%D9%82%D8%A7%D9%86%D8%A7+screenshotsfrom)
 
-{{links}}
+* [بزرگ سنگ شکن ماشین مک](../41/%D8%A8%D8%B2%D8%B1%DA%AF%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%A7%D8%B4%DB%8C%D9%86%20%D9%85%DA%A9.md)
+
+* [کارخانه سنگ شکن رایگان کلیپ های ویدیوئی](../42/%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%DA%A9%D9%84%DB%8C%D9%BE%20%D9%87%D8%A7%DB%8C%20%D9%88%DB%8C%D8%AF%DB%8C%D9%88%D8%A6%DB%8C.md)
+
+* [ماكينة انتاج الدقيق](../41/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9%20%D8%A7%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A7%D9%84%D8%AF%D9%82%D9%8A%D9%82.md)
+
+* [تأثير محطم ، محطم خام النحاس للطاقة منخفضة](../45/%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%8C%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D9%86%D8%AD%D8%A7%D8%B3%20%D9%84%D9%84%D8%B7%D8%A7%D9%82%D8%A9%20%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9.md)
+
+* [100 و دراسة عن تطبيق خط إنتاج الورق المعاد تدويره من التعويم](../45/100%20%D9%88%20%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9%20%D8%B9%D9%86%20%D8%AA%D8%B7%D8%A8%D9%8A%D9%82%20%D8%AE%D8%B7%20%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A7%D9%84%D9%88%D8%B1%D9%82%20%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%20%D8%AA%D8%AF%D9%88%D9%8A%D8%B1%D9%87%20%D9%85%D9%86%20%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D9%85.md)
+
+* [مطحنة الذرة المحلية في بيرو](../44/%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D8%B0%D8%B1%D8%A9%20%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A%D8%A9%20%D9%81%D9%8A%20%D8%A8%D9%8A%D8%B1%D9%88.md)

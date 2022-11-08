@@ -370,4 +370,14 @@ Innovations of Ukraine (Innovacii Ukrainy) في Kiev محلات الانترنت
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=vsi+%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1+%D9%85%D8%AD%D8%B7%D9%85+%D8%A3%D9%8A%D9%88%D9%86+specifi)
 
-{{links}}
+* [معیارهای به نصب سنگ شکن سنگ](../41/%D9%85%D8%B9%DB%8C%D8%A7%D8%B1%D9%87%D8%A7%DB%8C%20%D8%A8%D9%87%20%D9%86%D8%B5%D8%A8%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [كما لدي طاحونة الذرة يأخذ](../44/%D9%83%D9%85%D8%A7%20%D9%84%D8%AF%D9%8A%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D8%A7%D9%84%D8%B0%D8%B1%D8%A9%20%D9%8A%D8%A3%D8%AE%D8%B0.md)
+
+* [الكسارات العمودية لصناعة التعدين](../44/%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B9%D9%85%D9%88%D8%AF%D9%8A%D8%A9%20%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D8%A9%20%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%86.md)
+
+* [قطعات یدکی سنگ شکن سنگ آهن](../41/%D9%82%D8%B7%D8%B9%D8%A7%D8%AA%20%DB%8C%D8%AF%DA%A9%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%A2%D9%87%D9%86.md)
+
+* [كيفية تصنيع كسارة](../45/%D9%83%D9%8A%D9%81%D9%8A%D8%A9%20%D8%AA%D8%B5%D9%86%D9%8A%D8%B9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [محطة كسارة حجر كبير](../41/%D9%85%D8%AD%D8%B7%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%AD%D8%AC%D8%B1%20%D9%83%D8%A8%D9%8A%D8%B1.md)

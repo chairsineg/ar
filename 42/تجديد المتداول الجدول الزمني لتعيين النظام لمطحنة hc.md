@@ -210,4 +210,14 @@ Type of HC Refrigerants: is designed as a dropin replacement for ozonedepleting 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF+%D8%A7%D9%84%D9%85%D8%AA%D8%AF%D8%A7%D9%88%D9%84+%D8%A7%D9%84%D8%AC%D8%AF%D9%88%D9%84+%D8%A7%D9%84%D8%B2%D9%85%D9%86%D9%8A+%D9%84%D8%AA%D8%B9%D9%8A%D9%8A%D9%86+%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%85+%D9%84%D9%85%D8%B7%D8%AD%D9%86%D8%A9+hc)
 
-{{links}}
+* [قصيدة عبدالله الحجار السود الموساي الفنان فثي البوادي](../41/%D9%82%D8%B5%D9%8A%D8%AF%D8%A9%20%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87%20%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%B1%20%D8%A7%D9%84%D8%B3%D9%88%D8%AF%20%D8%A7%D9%84%D9%85%D9%88%D8%B3%D8%A7%D9%8A%20%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%20%D9%81%D8%AB%D9%8A%20%D8%A7%D9%84%D8%A8%D9%88%D8%A7%D8%AF%D9%8A.md)
+
+* [کلان سنگ شکن سنگ فک](../41/%DA%A9%D9%84%D8%A7%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D9%81%DA%A9.md)
+
+* [كسارة الفك في رايبور](../43/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%81%D9%83%20%D9%81%D9%8A%20%D8%B1%D8%A7%D9%8A%D8%A8%D9%88%D8%B1.md)
+
+* [إرشادات التثبيت الدرفلة](../44/%D8%A5%D8%B1%D8%B4%D8%A7%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA%20%D8%A7%D9%84%D8%AF%D8%B1%D9%81%D9%84%D8%A9.md)
+
+* [شرکت های سنگ شکن در آلمان](../41/%D8%B4%D8%B1%DA%A9%D8%AA%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AF%D8%B1%20%D8%A2%D9%84%D9%85%D8%A7%D9%86.md)
+
+* [اشكال غسالات توشيبا الفوق اتوماتيك](../42/%D8%A7%D8%B4%D9%83%D8%A7%D9%84%20%D8%BA%D8%B3%D8%A7%D9%84%D8%A7%D8%AA%20%D8%AA%D9%88%D8%B4%D9%8A%D8%A8%D8%A7%20%D8%A7%D9%84%D9%81%D9%88%D9%82%20%D8%A7%D8%AA%D9%88%D9%85%D8%A7%D8%AA%D9%8A%D9%83.md)

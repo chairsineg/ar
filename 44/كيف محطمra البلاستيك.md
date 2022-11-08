@@ -261,4 +261,14 @@ View the profiles of people named Hibaaq Maxamed.Join Facebook to connect with H
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%83%D9%8A%D9%81+%D9%85%D8%AD%D8%B7%D9%85ra+%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83)
 
-{{links}}
+* [التلقائي طحن حساب الكفاءة](../42/%D8%A7%D9%84%D8%AA%D9%84%D9%82%D8%A7%D8%A6%D9%8A%20%D8%B7%D8%AD%D9%86%20%D8%AD%D8%B3%D8%A7%D8%A8%20%D8%A7%D9%84%D9%83%D9%81%D8%A7%D8%A1%D8%A9.md)
+
+* [عتاد البناء الصغير و المعدات](../42/%D8%B9%D8%AA%D8%A7%D8%AF%20%D8%A7%D9%84%D8%A8%D9%86%D8%A7%D8%A1%20%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1%20%D9%88%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA.md)
+
+* [deskripsi tentang حالة hamerمن العملاء](../45/deskripsi%20tentang%20%D8%AD%D8%A7%D9%84%D8%A9%20hamer%D9%85%D9%86%20%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%A1.md)
+
+* [كانور حي الحجر](../44/%D9%83%D8%A7%D9%86%D9%88%D8%B1%20%D8%AD%D9%8A%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1.md)
+
+* [محامل محامل محطم](../45/%D9%85%D8%AD%D8%A7%D9%85%D9%84%20%D9%85%D8%AD%D8%A7%D9%85%D9%84%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [ماكينات كسارة حجر في ماليزيا](../45/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A7%D8%AA%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%AD%D8%AC%D8%B1%20%D9%81%D9%8A%20%D9%85%D8%A7%D9%84%D9%8A%D8%B2%D9%8A%D8%A7.md)

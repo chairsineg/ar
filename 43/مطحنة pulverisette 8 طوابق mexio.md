@@ -130,4 +130,14 @@ Find out all of the information about the Fritsch GmbH Milling and Sizing produc
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%85%D8%B7%D8%AD%D9%86%D8%A9+pulverisette+8+%D8%B7%D9%88%D8%A7%D8%A8%D9%82+mexio)
 
-{{links}}
+* [توريد معدات الخرسانة والعملاء في جنوب أفريقيا](../44/%D8%AA%D9%88%D8%B1%D9%8A%D8%AF%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AE%D8%B1%D8%B3%D8%A7%D9%86%D8%A9%20%D9%88%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%A1%20%D9%81%D9%8A%20%D8%AC%D9%86%D9%88%D8%A8%20%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7.md)
+
+* [اتفاق حفر الحصى نقل](../44/%D8%A7%D8%AA%D9%81%D8%A7%D9%82%20%D8%AD%D9%81%D8%B1%20%D8%A7%D9%84%D8%AD%D8%B5%D9%89%20%D9%86%D9%82%D9%84.md)
+
+* [البلاستيك المطحنة مطحنة](../43/%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83%20%D8%A7%D9%84%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)
+
+* [بيروت في الكرة مطحنة](../41/%D8%A8%D9%8A%D8%B1%D9%88%D8%AA%20%D9%81%D9%8A%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)
+
+* [سنگ شکن شادی آلمان](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B4%D8%A7%D8%AF%DB%8C%20%D8%A2%D9%84%D9%85%D8%A7%D9%86.md)
+
+* [الاسترالية الشركات المصنعة للمعدات الفحم](../43/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A9%20%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A7%D8%AA%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D8%A9%20%D9%84%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D9%81%D8%AD%D9%85.md)

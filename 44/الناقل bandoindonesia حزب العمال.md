@@ -400,4 +400,14 @@ Issuu is a digital publishing platform that makes it simple to publish magazines
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84+bandoindonesia+%D8%AD%D8%B2%D8%A8+%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84)
 
-{{links}}
+* [kasabihan tungkol سا pamilya](../44/kasabihan%20tungkol%20%D8%B3%D8%A7%20pamilya.md)
+
+* [إجراءات الصيانة كسارة برستيج](../41/%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D9%8A%D8%A7%D9%86%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A8%D8%B1%D8%B3%D8%AA%D9%8A%D8%AC.md)
+
+* [تفاصيل 50 الهيدروكربونات النفطية كسارة الحجر المحمول](../44/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84%2050%20%D8%A7%D9%84%D9%87%D9%8A%D8%AF%D8%B1%D9%88%D9%83%D8%B1%D8%A8%D9%88%D9%86%D8%A7%D8%AA%20%D8%A7%D9%84%D9%86%D9%81%D8%B7%D9%8A%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84.md)
+
+* [كسارة تصادمية المغرة في سوريا](../41/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%AA%D8%B5%D8%A7%D8%AF%D9%85%D9%8A%D8%A9%20%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A9%20%D9%81%D9%8A%20%D8%B3%D9%88%D8%B1%D9%8A%D8%A7.md)
+
+* [كسارات البذور بيرو](../45/%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%A8%D8%B0%D9%88%D8%B1%20%D8%A8%D9%8A%D8%B1%D9%88.md)
+
+* [كسارة الفك المنقار الطويل](../42/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%81%D9%83%20%D8%A7%D9%84%D9%85%D9%86%D9%82%D8%A7%D8%B1%20%D8%A7%D9%84%D8%B7%D9%88%D9%8A%D9%84.md)

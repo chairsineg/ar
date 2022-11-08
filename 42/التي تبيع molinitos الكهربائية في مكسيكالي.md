@@ -81,4 +81,14 @@ Ron noreply@blogger Blogger 160 1 25 tag:blogger,1999:blog6797102474235341458.po
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D8%AA%D9%8A+%D8%AA%D8%A8%D9%8A%D8%B9+molinitos+%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A6%D9%8A%D8%A9+%D9%81%D9%8A+%D9%85%D9%83%D8%B3%D9%8A%D9%83%D8%A7%D9%84%D9%8A)
 
-{{links}}
+* [الطين سحق المعدات في إيطاليا](../45/%D8%A7%D9%84%D8%B7%D9%8A%D9%86%20%D8%B3%D8%AD%D9%82%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D9%81%D9%8A%20%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7.md)
+
+* [الة لطحن للاوساخ اسفل](../41/%D8%A7%D9%84%D8%A9%20%D9%84%D8%B7%D8%AD%D9%86%20%D9%84%D9%84%D8%A7%D9%88%D8%B3%D8%A7%D8%AE%20%D8%A7%D8%B3%D9%81%D9%84.md)
+
+* [ربط قضيب آلة طحن](../42/%D8%B1%D8%A8%D8%B7%20%D9%82%D8%B6%D9%8A%D8%A8%20%D8%A2%D9%84%D8%A9%20%D8%B7%D8%AD%D9%86.md)
+
+* [کارخانه سنگ شکن کوچک](../42/%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%DA%A9%D9%88%DA%86%DA%A9.md)
+
+* [detalled مصغرة مصنع الأسمنت الدوارة المشاريع](../45/detalled%20%D9%85%D8%B5%D8%BA%D8%B1%D8%A9%20%D9%85%D8%B5%D9%86%D8%B9%20%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D9%86%D8%AA%20%D8%A7%D9%84%D8%AF%D9%88%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9.md)
+
+* [sbm الكرة planetry مطحنة](../43/sbm%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20planetry%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)

@@ -290,4 +290,14 @@ Iraq and the Heritage of the Nineveh Plains dialects: ChaldoSyrioAssyrio Volume 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=frymakoruma+%D9%82%D8%B1%D8%B5+%D9%85%D8%AB%D9%82%D8%A8+%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9+%D9%85%D9%84+150)
 
-{{links}}
+* [الصناعات طحن في الإكوادور](../43/%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D8%A7%D8%AA%20%D8%B7%D8%AD%D9%86%20%D9%81%D9%8A%20%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1.md)
+
+* [عملية الاستخراج من الركام](../43/%D8%B9%D9%85%D9%84%D9%8A%D8%A9%20%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D9%85%D9%86%20%D8%A7%D9%84%D8%B1%D9%83%D8%A7%D9%85.md)
+
+* [jageshwar والخص jageshwar الفحم](../45/jageshwar%20%D9%88%D8%A7%D9%84%D8%AE%D8%B5%20jageshwar%20%D8%A7%D9%84%D9%81%D8%AD%D9%85.md)
+
+* [أونيفرسال آلة طحن مملة](../42/%D8%A3%D9%88%D9%86%D9%8A%D9%81%D8%B1%D8%B3%D8%A7%D9%84%20%D8%A2%D9%84%D8%A9%20%D8%B7%D8%AD%D9%86%20%D9%85%D9%85%D9%84%D8%A9.md)
+
+* [الفرق بين الهيدروليكية كسارة مخروطية والربيع](../45/%D8%A7%D9%84%D9%81%D8%B1%D9%82%20%D8%A8%D9%8A%D9%86%20%D8%A7%D9%84%D9%87%D9%8A%D8%AF%D8%B1%D9%88%D9%84%D9%8A%D9%83%D9%8A%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%D9%8A%D8%A9%20%D9%88%D8%A7%D9%84%D8%B1%D8%A8%D9%8A%D8%B9.md)
+
+* [تدفق ورقة لاستخراج لمعالجة خام النحاس](../44/%D8%AA%D8%AF%D9%81%D9%82%20%D9%88%D8%B1%D9%82%D8%A9%20%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D9%84%D9%85%D8%B9%D8%A7%D9%84%D8%AC%D8%A9%20%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D9%86%D8%AD%D8%A7%D8%B3.md)

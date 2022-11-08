@@ -261,4 +261,14 @@ Rail Coach Factory Kapurthala.[IRFCA] Inside WDM2A Loco,Loco Pilot operating the
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D9%81%D9%83+%D9%85%D8%AD%D8%B7%D9%85+coache)
 
-{{links}}
+* [إنتاج الحليب تستخدم الشركات المصنعة](../43/%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A7%D9%84%D8%AD%D9%84%D9%8A%D8%A8%20%D8%AA%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%20%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A7%D8%AA%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D8%A9.md)
+
+* [سنگ شکن سنگ مورد استفاده در اروپا](../42/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%AF%D8%B1%20%D8%A7%D8%B1%D9%88%D9%BE%D8%A7.md)
+
+* [الحجر الأساسي محطم الهندي](../43/%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%87%D9%86%D8%AF%D9%8A.md)
+
+* [اليورانيوم طاحونة rossing](../43/%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D8%A7%D9%86%D9%8A%D9%88%D9%85%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20rossing.md)
+
+* [ارتعاشی سنگ شکن سنگ](../41/%D8%A7%D8%B1%D8%AA%D8%B9%D8%A7%D8%B4%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [الموزع محطم شنغهاي زينث](../42/%D8%A7%D9%84%D9%85%D9%88%D8%B2%D8%B9%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%B4%D9%86%D8%BA%D9%87%D8%A7%D9%8A%20%D8%B2%D9%8A%D9%86%D8%AB.md)

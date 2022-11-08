@@ -371,4 +371,14 @@ Issuu is a digital publishing platform that makes it simple to publish magazines
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%85%D8%AD%D9%84%D9%8A%D8%A9+%D8%A7%D9%84%D8%B5%D9%86%D8%B9+%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA+%D8%B4%D8%AD%D8%B0+end%D9%85%D9%86)
 
-{{links}}
+* [جوجرات شركة المخازن مطحنة](../45/%D8%AC%D9%88%D8%AC%D8%B1%D8%A7%D8%AA%20%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%B2%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)
+
+* [تعقب البسيطة صخرة محطم](../42/%D8%AA%D8%B9%D9%82%D8%A8%20%D8%A7%D9%84%D8%A8%D8%B3%D9%8A%D8%B7%D8%A9%20%D8%B5%D8%AE%D8%B1%D8%A9%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [دستگاه های سنگ شکن خزش](../41/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AE%D8%B2%D8%B4.md)
+
+* [حيث بلغت قيمة عجلة على العشب فيراكروز](../45/%D8%AD%D9%8A%D8%AB%20%D8%A8%D9%84%D8%BA%D8%AA%20%D9%82%D9%8A%D9%85%D8%A9%20%D8%B9%D8%AC%D9%84%D8%A9%20%D8%B9%D9%84%D9%89%20%D8%A7%D9%84%D8%B9%D8%B4%D8%A8%20%D9%81%D9%8A%D8%B1%D8%A7%D9%83%D8%B1%D9%88%D8%B2.md)
+
+* [الصناعة التقليديةالحديد](../42/%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D8%A9%20%D8%A7%D9%84%D8%AA%D9%82%D9%84%D9%8A%D8%AF%D9%8A%D8%A9%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF.md)
+
+* [تنفيذ عملية سحق ملموسة](../45/%D8%AA%D9%86%D9%81%D9%8A%D8%B0%20%D8%B9%D9%85%D9%84%D9%8A%D8%A9%20%D8%B3%D8%AD%D9%82%20%D9%85%D9%84%D9%85%D9%88%D8%B3%D8%A9.md)

@@ -211,4 +211,14 @@ Transcription.MODERN ASSYRIAN CATALYST DICTIONARY Dialectsكسارة الخشب 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A8%D9%8A%D8%B9+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+matrazes)
 
-{{links}}
+* [حصادات للبيع في الحوض المكسيك](../45/%D8%AD%D8%B5%D8%A7%D8%AF%D8%A7%D8%AA%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9%20%D9%81%D9%8A%20%D8%A7%D9%84%D8%AD%D9%88%D8%B6%20%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83.md)
+
+* [elñctricas ع أداة الإضاءة طحن](../44/el%C3%B1ctricas%20%D8%B9%20%D8%A3%D8%AF%D8%A7%D8%A9%20%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D8%A1%D8%A9%20%D8%B7%D8%AD%D9%86.md)
+
+* [اخر تطور موضوع اغلاق كسارات جبال العد](../41/%D8%A7%D8%AE%D8%B1%20%D8%AA%D8%B7%D9%88%D8%B1%20%D9%85%D9%88%D8%B6%D9%88%D8%B9%20%D8%A7%D8%BA%D9%84%D8%A7%D9%82%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%AC%D8%A8%D8%A7%D9%84%20%D8%A7%D9%84%D8%B9%D8%AF.md)
+
+* [مالايا خط إنتاج الحجر](../43/%D9%85%D8%A7%D9%84%D8%A7%D9%8A%D8%A7%20%D8%AE%D8%B7%20%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1.md)
+
+* [الكرة طحن المكسيك آلة](../45/%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83%20%D8%A2%D9%84%D8%A9.md)
+
+* [نوع من آلة كسارة هو أفضل](../45/%D9%86%D9%88%D8%B9%20%D9%85%D9%86%20%D8%A2%D9%84%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D9%87%D9%88%20%D8%A3%D9%81%D8%B6%D9%84.md)

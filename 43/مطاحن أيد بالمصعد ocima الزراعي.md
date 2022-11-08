@@ -131,4 +131,14 @@ Dec 01,2016&nbsp&#0183&#32The Public Utilities Commission of Ohio (PUCO) affects
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%85%D8%B7%D8%A7%D8%AD%D9%86+%D8%A3%D9%8A%D8%AF+%D8%A8%D8%A7%D9%84%D9%85%D8%B5%D8%B9%D8%AF+ocima+%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A)
 
-{{links}}
+* [الوقت محطم طحن dahulu](../43/%D8%A7%D9%84%D9%88%D9%82%D8%AA%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%B7%D8%AD%D9%86%20dahulu.md)
+
+* [تعدين الذهب محطم benefication](../44/%D8%AA%D8%B9%D8%AF%D9%8A%D9%86%20%D8%A7%D9%84%D8%B0%D9%87%D8%A8%20%D9%85%D8%AD%D8%B7%D9%85%20benefication.md)
+
+* [سنگ شکن ابررساناها و تامین کنندگان](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A7%D8%A8%D8%B1%D8%B1%D8%B3%D8%A7%D9%86%D8%A7%D9%87%D8%A7%20%D9%88%20%D8%AA%D8%A7%D9%85%DB%8C%D9%86%20%DA%A9%D9%86%D9%86%D8%AF%DA%AF%D8%A7%D9%86.md)
+
+* [اماكن استخراج الزهب فى مصر](../42/%D8%A7%D9%85%D8%A7%D9%83%D9%86%20%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D8%A7%D9%84%D8%B2%D9%87%D8%A8%20%D9%81%D9%89%20%D9%85%D8%B5%D8%B1.md)
+
+* [كسارة طاحونة مخروط محطم](../45/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [flocculant مثخن المصنعة صمام التحكم](../44/flocculant%20%D9%85%D8%AB%D8%AE%D9%86%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D8%A9%20%D8%B5%D9%85%D8%A7%D9%85%20%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%85.md)

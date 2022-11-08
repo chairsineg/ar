@@ -111,4 +111,14 @@ Lima Peru 1865An early map of Lima showing the ancient city walls and fortifiion
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=milinos+%D9%84%D8%B7%D8%AD%D9%86+%D8%A7%D9%84%D9%82%D8%B3+%D9%81%D9%8A+%D9%84%D9%8A%D9%85%D8%A7)
 
-{{links}}
+* [فک سنگ شکن اولیه](../42/%D9%81%DA%A9%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A7%D9%88%D9%84%DB%8C%D9%87.md)
+
+* [مدل سنگ شکن خوب](../41/%D9%85%D8%AF%D9%84%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AE%D9%88%D8%A8.md)
+
+* [محطم المحمولة 150 طن في الساعة](../45/%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84%D8%A9%20150%20%D8%B7%D9%86%20%D9%81%D9%8A%20%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9.md)
+
+* [ما الذي يجعل كسارة الحجر جيدة رخيصة](../41/%D9%85%D8%A7%20%D8%A7%D9%84%D8%B0%D9%8A%20%D9%8A%D8%AC%D8%B9%D9%84%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D8%AC%D9%8A%D8%AF%D8%A9%20%D8%B1%D8%AE%D9%8A%D8%B5%D8%A9.md)
+
+* [هند تولید کننده کارخانه سنگ شکن سرباره](../42/%D9%87%D9%86%D8%AF%20%D8%AA%D9%88%D9%84%DB%8C%D8%AF%20%DA%A9%D9%86%D9%86%D8%AF%D9%87%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D8%B1%D8%A8%D8%A7%D8%B1%D9%87.md)
+
+* [ماشین تجهیزات سنگ شکن شناور](../41/%D9%85%D8%A7%D8%B4%DB%8C%D9%86%20%D8%AA%D8%AC%D9%87%DB%8C%D8%B2%D8%A7%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B4%D9%86%D8%A7%D9%88%D8%B1.md)

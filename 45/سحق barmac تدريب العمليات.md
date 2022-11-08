@@ -290,4 +290,14 @@ of the Barmac is by adjusting the Rotor Tip speed.This can Material that is crus
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%B3%D8%AD%D9%82+barmac+%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8+%D8%A7%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA)
 
-{{links}}
+* [mashiner cresher في etaly للبيع](../43/mashiner%20cresher%20%D9%81%D9%8A%20etaly%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9.md)
+
+* [مخبز آلي للبيع](../42/%D9%85%D8%AE%D8%A8%D8%B2%20%D8%A2%D9%84%D9%8A%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9.md)
+
+* [كيفية تحديد حجم الناقل رئيس بكرة](../43/%D9%83%D9%8A%D9%81%D9%8A%D8%A9%20%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF%20%D8%AD%D8%AC%D9%85%20%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%20%D8%B1%D8%A6%D9%8A%D8%B3%20%D8%A8%D9%83%D8%B1%D8%A9.md)
+
+* [الصلب الخبث تجهيز](../45/%D8%A7%D9%84%D8%B5%D9%84%D8%A8%20%D8%A7%D9%84%D8%AE%D8%A8%D8%AB%20%D8%AA%D8%AC%D9%87%D9%8A%D8%B2.md)
+
+* [عجلة vsi شنت مصنع sbm](../42/%D8%B9%D8%AC%D9%84%D8%A9%20vsi%20%D8%B4%D9%86%D8%AA%20%D9%85%D8%B5%D9%86%D8%B9%20sbm.md)
+
+* [کارخانه سنگ شکن کوچک](../42/%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%DA%A9%D9%88%DA%86%DA%A9.md)

@@ -261,4 +261,14 @@ GBM Mining Machinery.Products.Ball Mill HPT Cone Crusher Mobile Cone Crusher PY 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+%D9%82+%D8%B4%D8%A8%D9%83%D8%A9+fontibon)
 
-{{links}}
+* [چه سنگ شکن محور عمودی است](../41/%DA%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%AD%D9%88%D8%B1%20%D8%B9%D9%85%D9%88%D8%AF%DB%8C%20%D8%A7%D8%B3%D8%AA.md)
+
+* [مارک های مخروطی سنگ شکن](../41/%D9%85%D8%A7%D8%B1%DA%A9%20%D9%87%D8%A7%DB%8C%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [الغبار نظام لاستخراج الكسارات المتنقلة](../41/%D8%A7%D9%84%D8%BA%D8%A8%D8%A7%D8%B1%20%D9%86%D8%B8%D8%A7%D9%85%20%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D9%85%D8%AA%D9%86%D9%82%D9%84%D8%A9.md)
+
+* [ج ت الرمال عدة التمويه علامة](../43/%D8%AC%20%D8%AA%20%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D9%84%20%D8%B9%D8%AF%D8%A9%20%D8%A7%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%87%20%D8%B9%D9%84%D8%A7%D9%85%D8%A9.md)
+
+* [مطحنة عن الذهب تركز الجير](../45/%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%B9%D9%86%20%D8%A7%D9%84%D8%B0%D9%87%D8%A8%20%D8%AA%D8%B1%D9%83%D8%B2%20%D8%A7%D9%84%D8%AC%D9%8A%D8%B1.md)
+
+* [الصين سعر مطحنة الألغام](../42/%D8%A7%D9%84%D8%B5%D9%8A%D9%86%20%D8%B3%D8%B9%D8%B1%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D8%A3%D9%84%D8%BA%D8%A7%D9%85.md)

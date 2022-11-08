@@ -361,4 +361,14 @@ sbnnjnmsdjmnjkdfmm kfmof gkkdmm edkmdf.sbnnjnmsdjmnjkdfmm kfmof gkkdmm edkmdf mo
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=sbnnjnmsdjmnjkdfmm+kfmof+gkkdmm+edkmdf)
 
-{{links}}
+* [عدة البطارية و](../45/%D8%B9%D8%AF%D8%A9%20%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%B1%D9%8A%D8%A9%20%D9%88.md)
+
+* [محطم وغرابيل النقالة sbm](../44/%D9%85%D8%AD%D8%B7%D9%85%20%D9%88%D8%BA%D8%B1%D8%A7%D8%A8%D9%8A%D9%84%20%D8%A7%D9%84%D9%86%D9%82%D8%A7%D9%84%D8%A9%20sbm.md)
+
+* [عللي يستخدم النحاس في صناعة الاسلاك الكهربا](../41/%D8%B9%D9%84%D9%84%D9%8A%20%D9%8A%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%20%D8%A7%D9%84%D9%86%D8%AD%D8%A7%D8%B3%20%D9%81%D9%8A%20%D8%B5%D9%86%D8%A7%D8%B9%D8%A9%20%D8%A7%D9%84%D8%A7%D8%B3%D9%84%D8%A7%D9%83%20%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7.md)
+
+* [العاجي بانكا طحن](../44/%D8%A7%D9%84%D8%B9%D8%A7%D8%AC%D9%8A%20%D8%A8%D8%A7%D9%86%D9%83%D8%A7%20%D8%B7%D8%AD%D9%86.md)
+
+* [طلب من المجلس التشريعي الفلسطيني في إنتاج الورق مصنع معالجة المياه المستعملة](../43/%D8%B7%D9%84%D8%A8%20%D9%85%D9%86%20%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3%20%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A%20%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%20%D9%81%D9%8A%20%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A7%D9%84%D9%88%D8%B1%D9%82%20%D9%85%D8%B5%D9%86%D8%B9%20%D9%85%D8%B9%D8%A7%D9%84%D8%AC%D8%A9%20%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%87%20%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B9%D9%85%D9%84%D8%A9.md)
+
+* [mps سرعة متوسطة مصنع مطحنة](../45/mps%20%D8%B3%D8%B1%D8%B9%D8%A9%20%D9%85%D8%AA%D9%88%D8%B3%D8%B7%D8%A9%20%D9%85%D8%B5%D9%86%D8%B9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)

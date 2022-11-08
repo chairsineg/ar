@@ -331,4 +331,14 @@ Sandvik has thousands of cone crushers in operation around the world,including t
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=cs+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+%D9%85%D8%AE%D8%B1%D9%88%D8%B7%D9%8A%D8%A9+%D9%88%D8%AA%D8%B2%D9%8A%D9%8A%D8%AA)
 
-{{links}}
+* [سنگ شکن مخروطی ایران](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%DB%8C%20%D8%A7%DB%8C%D8%B1%D8%A7%D9%86.md)
+
+* [دستگاه های سنگ شکن خودکار مورد استفاده برای فروش](../41/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AE%D9%88%D8%AF%DA%A9%D8%A7%D8%B1%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D9%81%D8%B1%D9%88%D8%B4.md)
+
+* [cedarapids مخروط محطم mvp380](../45/cedarapids%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%20%D9%85%D8%AD%D8%B7%D9%85%20mvp380.md)
+
+* [محطم خام الحديد لتوظيف الهند](../44/%D9%85%D8%AD%D8%B7%D9%85%20%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF%20%D9%84%D8%AA%D9%88%D8%B8%D9%8A%D9%81%20%D8%A7%D9%84%D9%87%D9%86%D8%AF.md)
+
+* [آلات الكسارات الهند](../45/%D8%A2%D9%84%D8%A7%D8%AA%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D9%87%D9%86%D8%AF.md)
+
+* [تعداد زیادی از دستگاه های سنگ شکن سنگ در مکزیک](../42/%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%20%D8%B2%DB%8C%D8%A7%D8%AF%DB%8C%20%D8%A7%D8%B2%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%AF%D8%B1%20%D9%85%DA%A9%D8%B2%DB%8C%DA%A9.md)

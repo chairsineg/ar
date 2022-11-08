@@ -251,4 +251,14 @@ Grinding Rocklab Harga grinding mill equipment.harga grinding mill model hp m SB
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=sbm+%D8%A7%D9%84%D9%83%D8%B1%D8%A9+planetry+%D9%85%D8%B7%D8%AD%D9%86%D8%A9)
 
-{{links}}
+* [طحن وحدة مصنع صغير](../45/%D8%B7%D8%AD%D9%86%20%D9%88%D8%AD%D8%AF%D8%A9%20%D9%85%D8%B5%D9%86%D8%B9%20%D8%B5%D8%BA%D9%8A%D8%B1.md)
+
+* [البحث عن آلات الصناعات الصغيرة](../41/%D8%A7%D9%84%D8%A8%D8%AD%D8%AB%20%D8%B9%D9%86%20%D8%A2%D9%84%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9.md)
+
+* [سنسور دمای گیربکس سنگ شکن](../42/%D8%B3%D9%86%D8%B3%D9%88%D8%B1%20%D8%AF%D9%85%D8%A7%DB%8C%20%DA%AF%DB%8C%D8%B1%D8%A8%DA%A9%D8%B3%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [ماكينات خاصة كسارة](../44/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A7%D8%AA%20%D8%AE%D8%A7%D8%B5%D8%A9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [تهتز تخطيط الشاشة](../44/%D8%AA%D9%87%D8%AA%D8%B2%20%D8%AA%D8%AE%D8%B7%D9%8A%D8%B7%20%D8%A7%D9%84%D8%B4%D8%A7%D8%B4%D8%A9.md)
+
+* [إجراءات التنظيف الكرة من مطحنة الكرة](../43/%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%81%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9.md)

@@ -241,4 +241,14 @@ Figure 1: Overview of copper production.Benefiion process.Figure 2: Overview of 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%B9%D9%85%D9%84%D9%8A%D8%A9+concentrater+%D8%A7%D9%84%D9%86%D8%AD%D8%A7%D8%B3)
 
-{{links}}
+* [الجمع بين مطحنة عمودية إلى المستشفى](../41/%D8%A7%D9%84%D8%AC%D9%85%D8%B9%20%D8%A8%D9%8A%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%B9%D9%85%D9%88%D8%AF%D9%8A%D8%A9%20%D8%A5%D9%84%D9%89%20%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89.md)
+
+* [سحق المعدات القياسية تصميم](../43/%D8%B3%D8%AD%D9%82%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9%20%D8%AA%D8%B5%D9%85%D9%8A%D9%85.md)
+
+* [الصين اسطوانة واحدة مخروط محطم](../42/%D8%A7%D9%84%D8%B5%D9%8A%D9%86%20%D8%A7%D8%B3%D8%B7%D9%88%D8%A7%D9%86%D8%A9%20%D9%88%D8%A7%D8%AD%D8%AF%D8%A9%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [مخطط العام ل الطريق](../43/%D9%85%D8%AE%D8%B7%D8%B7%20%D8%A7%D9%84%D8%B9%D8%A7%D9%85%20%D9%84%20%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82.md)
+
+* [القيود محطم](../45/%D8%A7%D9%84%D9%82%D9%8A%D9%88%D8%AF%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [مدل سنگ شکن خوب](../41/%D9%85%D8%AF%D9%84%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AE%D9%88%D8%A8.md)

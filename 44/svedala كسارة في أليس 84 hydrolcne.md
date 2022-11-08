@@ -191,4 +191,14 @@ allis chalmers vibrating feeders repair manual.allis chalmers vibrating feeders 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=svedala+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+%D9%81%D9%8A+%D8%A3%D9%84%D9%8A%D8%B3+84+hydrolcne)
 
-{{links}}
+* [گرانیت سنگ شکن فکی](../41/%DA%AF%D8%B1%D8%A7%D9%86%DB%8C%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%81%DA%A9%DB%8C.md)
+
+* [سحق آلة لسحق الصخور](../43/%D8%B3%D8%AD%D9%82%20%D8%A2%D9%84%D8%A9%20%D9%84%D8%B3%D8%AD%D9%82%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1.md)
+
+* [التحليل الميكانيكي لانتفاخ أنبوب مطحنة الكرة](../42/%D8%A7%D9%84%D8%AA%D8%AD%D9%84%D9%8A%D9%84%20%D8%A7%D9%84%D9%85%D9%8A%D9%83%D8%A7%D9%86%D9%8A%D9%83%D9%8A%20%D9%84%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%AE%20%D8%A3%D9%86%D8%A8%D9%88%D8%A8%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9.md)
+
+* [مزايا وعيوب الطحن العمودي](../45/%D9%85%D8%B2%D8%A7%D9%8A%D8%A7%20%D9%88%D8%B9%D9%8A%D9%88%D8%A8%20%D8%A7%D9%84%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%B9%D9%85%D9%88%D8%AF%D9%8A.md)
+
+* [الكبريت دليل مصنع الطاحن](../43/%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%8A%D8%AA%20%D8%AF%D9%84%D9%8A%D9%84%20%D9%85%D8%B5%D9%86%D8%B9%20%D8%A7%D9%84%D8%B7%D8%A7%D8%AD%D9%86.md)
+
+* [ببليوغرافيا عن عملية الطحن](../41/%D8%A8%D8%A8%D9%84%D9%8A%D9%88%D8%BA%D8%B1%D8%A7%D9%81%D9%8A%D8%A7%20%D8%B9%D9%86%20%D8%B9%D9%85%D9%84%D9%8A%D8%A9%20%D8%A7%D9%84%D8%B7%D8%AD%D9%86.md)

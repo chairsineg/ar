@@ -371,4 +371,14 @@ Two big announcements today! Firstly,we have just released a free web demo for Y
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%B9%D8%AC%D9%84%D8%A9+%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9+ncr)
 
-{{links}}
+* [الحجر الطبيعي الهند تقرير مشروع مصنع كسارة](../42/%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D8%A7%D9%84%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A%20%D8%A7%D9%84%D9%87%D9%86%D8%AF%20%D8%AA%D9%82%D8%B1%D9%8A%D8%B1%20%D9%85%D8%B4%D8%B1%D9%88%D8%B9%20%D9%85%D8%B5%D9%86%D8%B9%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [الدولوميت محجر كسارة](../43/%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%88%D9%85%D9%8A%D8%AA%20%D9%85%D8%AD%D8%AC%D8%B1%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [حجر محطم آلة بيع عمان](../45/%D8%AD%D8%AC%D8%B1%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A2%D9%84%D8%A9%20%D8%A8%D9%8A%D8%B9%20%D8%B9%D9%85%D8%A7%D9%86.md)
+
+* [كسارات piell](../45/%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20piell.md)
+
+* [تصنيف سيور ناقلة](../45/%D8%AA%D8%B5%D9%86%D9%8A%D9%81%20%D8%B3%D9%8A%D9%88%D8%B1%20%D9%86%D8%A7%D9%82%D9%84%D8%A9.md)
+
+* [هاتف صغير abord تعمل كسارة الفك](../43/%D9%87%D8%A7%D8%AA%D9%81%20%D8%B5%D8%BA%D9%8A%D8%B1%20abord%20%D8%AA%D8%B9%D9%85%D9%84%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%81%D9%83.md)

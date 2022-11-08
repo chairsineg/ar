@@ -231,4 +231,14 @@ Abstrac~A new magnetic separation technique combines high magnetic fields,extrem
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D9%81%D8%B5%D9%84+%D8%A7%D9%84%D9%83%D8%A7%D9%88%D9%84%D9%8A%D9%86+%D9%88stonesand)
 
-{{links}}
+* [سنگ شکن فکی زیرزمینی](../41/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%81%DA%A9%DB%8C%20%D8%B2%DB%8C%D8%B1%D8%B2%D9%85%DB%8C%D9%86%DB%8C.md)
+
+* [سنگ شکن موبایل هند قیمت کارخانه](../42/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D9%88%D8%A8%D8%A7%DB%8C%D9%84%20%D9%87%D9%86%D8%AF%20%D9%82%DB%8C%D9%85%D8%AA%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87.md)
+
+* [محجر الحجر كسارات](../41/%D9%85%D8%AD%D8%AC%D8%B1%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA.md)
+
+* [تحسين مطحنة الاسطوانة تغذية الجهاز](../41/%D8%AA%D8%AD%D8%B3%D9%8A%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D8%A7%D8%B3%D8%B7%D9%88%D8%A7%D9%86%D8%A9%20%D8%AA%D8%BA%D8%B0%D9%8A%D8%A9%20%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%B2.md)
+
+* [تشنغ تشو محطم](../42/%D8%AA%D8%B4%D9%86%D8%BA%20%D8%AA%D8%B4%D9%88%20%D9%85%D8%AD%D8%B7%D9%85.md)
+
+* [پلاستیک دستگاه های سنگ شکن](../41/%D9%BE%D9%84%D8%A7%D8%B3%D8%AA%DB%8C%DA%A9%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)

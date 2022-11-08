@@ -301,4 +301,14 @@ IUCN taxon ID.identifier for a taxon in the International Union for Conservation
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B1%D9%81+%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9+%D9%85%D9%86+%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF+beneification+%D8%AE%D8%A7%D9%85)
 
-{{links}}
+* [پا سنگ شکن مخروطی](../41/%D9%BE%D8%A7%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%DB%8C.md)
+
+* [تأثير محطم المحمول مع شاشة](../44/%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84%20%D9%85%D8%B9%20%D8%B4%D8%A7%D8%B4%D8%A9.md)
+
+* [كيفية بيع المعجون الصين آلة مسحوق](../43/%D9%83%D9%8A%D9%81%D9%8A%D8%A9%20%D8%A8%D9%8A%D8%B9%20%D8%A7%D9%84%D9%85%D8%B9%D8%AC%D9%88%D9%86%20%D8%A7%D9%84%D8%B5%D9%8A%D9%86%20%D8%A2%D9%84%D8%A9%20%D9%85%D8%B3%D8%AD%D9%88%D9%82.md)
+
+* [طاحونة الأسمنت المصنع](../43/%D8%B7%D8%A7%D8%AD%D9%88%D9%86%D8%A9%20%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D9%86%D8%AA%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9.md)
+
+* [صغير الفك محطم المحمول المزود](../45/%D8%B5%D8%BA%D9%8A%D8%B1%20%D8%A7%D9%84%D9%81%D9%83%20%D9%85%D8%AD%D8%B7%D9%85%20%D8%A7%D9%84%D9%85%D8%AD%D9%85%D9%88%D9%84%20%D8%A7%D9%84%D9%85%D8%B2%D9%88%D8%AF.md)
+
+* [الواردات والصادرات في ولاية راجاستان](../45/%D8%A7%D9%84%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA%20%D9%88%D8%A7%D9%84%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA%20%D9%81%D9%8A%20%D9%88%D9%84%D8%A7%D9%8A%D8%A9%20%D8%B1%D8%A7%D8%AC%D8%A7%D8%B3%D8%AA%D8%A7%D9%86.md)

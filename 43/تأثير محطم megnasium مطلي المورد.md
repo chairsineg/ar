@@ -231,4 +231,14 @@ Like electronic music,Mahraganat music relies on a base loop,but unlike Western 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1+%D9%85%D8%AD%D8%B7%D9%85+megnasium+%D9%85%D8%B7%D9%84%D9%8A+%D8%A7%D9%84%D9%85%D9%88%D8%B1%D8%AF)
 
-{{links}}
+* [مستوى الطيار نقلت مطحنة الكرة](../43/%D9%85%D8%B3%D8%AA%D9%88%D9%89%20%D8%A7%D9%84%D8%B7%D9%8A%D8%A7%D8%B1%20%D9%86%D9%82%D9%84%D8%AA%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9.md)
+
+* [دستگاه های سنگ شکن موبایل برای فروش استفاده](../42/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D9%88%D8%A8%D8%A7%DB%8C%D9%84%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D9%81%D8%B1%D9%88%D8%B4%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87.md)
+
+* [bl المترو كسارة المسار](../45/bl%20%D8%A7%D9%84%D9%85%D8%AA%D8%B1%D9%88%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B1.md)
+
+* [مطاحن المطرقة لطحن](../44/%D9%85%D8%B7%D8%A7%D8%AD%D9%86%20%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%82%D8%A9%20%D9%84%D8%B7%D8%AD%D9%86.md)
+
+* [الفرق الرئيسي الرأسي الموردين مطحنة الخام](../44/%D8%A7%D9%84%D9%81%D8%B1%D9%82%20%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%20%D8%A7%D9%84%D8%B1%D8%A3%D8%B3%D9%8A%20%D8%A7%D9%84%D9%85%D9%88%D8%B1%D8%AF%D9%8A%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D8%AE%D8%A7%D9%85.md)
+
+* [آلة طحن kanchican](../43/%D8%A2%D9%84%D8%A9%20%D8%B7%D8%AD%D9%86%20kanchican.md)

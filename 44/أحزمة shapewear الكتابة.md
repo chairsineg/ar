@@ -191,4 +191,14 @@ Discover shapewear in plus sizes at Avenue.Basic styles always available online 
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%A3%D8%AD%D8%B2%D9%85%D8%A9+shapewear+%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D8%A9)
 
-{{links}}
+* [نمودار نصب و راه اندازی سنگ شکن](../41/%D9%86%D9%85%D9%88%D8%AF%D8%A7%D8%B1%20%D9%86%D8%B5%D8%A8%20%D9%88%20%D8%B1%D8%A7%D9%87%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [البرتغالية ملم كسارة](../45/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A%D8%A9%20%D9%85%D9%84%D9%85%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [هند طرح بوته سنگ شکن سنگ](../42/%D9%87%D9%86%D8%AF%20%D8%B7%D8%B1%D8%AD%20%D8%A8%D9%88%D8%AA%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [طراحی از حداکثر اندازه سنگ شکن ضربه ای](../41/%D8%B7%D8%B1%D8%A7%D8%AD%DB%8C%20%D8%A7%D8%B2%20%D8%AD%D8%AF%D8%A7%DA%A9%D8%AB%D8%B1%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B6%D8%B1%D8%A8%D9%87%20%D8%A7%DB%8C.md)
+
+* [الكسارات المتنقلة الصورة](../44/%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D9%85%D8%AA%D9%86%D9%82%D9%84%D8%A9%20%D8%A7%D9%84%D8%B5%D9%88%D8%B1%D8%A9.md)
+
+* [سنگ شکن دیابت](../42/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AF%DB%8C%D8%A7%D8%A8%D8%AA.md)

@@ -381,4 +381,14 @@ Nouredine Nouredine is on Facebook.Join Facebook to connect with Nouredine Noure
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=%D8%B4%D8%B1%D9%83%D9%87+sbm+%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A%D9%87)
 
-{{links}}
+* [كسارة الجرانيت صغيرة للبيع](../44/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D9%86%D9%8A%D8%AA%20%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9.md)
+
+* [ثابت شاشة عرض](../43/%D8%AB%D8%A7%D8%A8%D8%AA%20%D8%B4%D8%A7%D8%B4%D8%A9%20%D8%B9%D8%B1%D8%B6.md)
+
+* [بورتوريكو السياحة](../45/%D8%A8%D9%88%D8%B1%D8%AA%D9%88%D8%B1%D9%8A%D9%83%D9%88%20%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AD%D8%A9.md)
+
+* [خصوصیات سنگ شکن موبایل](../41/%D8%AE%D8%B5%D9%88%D8%B5%DB%8C%D8%A7%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D9%88%D8%A8%D8%A7%DB%8C%D9%84.md)
+
+* [كم هو رمل الميكانيكية التنغستن](../43/%D9%83%D9%85%20%D9%87%D9%88%20%D8%B1%D9%85%D9%84%20%D8%A7%D9%84%D9%85%D9%8A%D9%83%D8%A7%D9%86%D9%8A%D9%83%D9%8A%D8%A9%20%D8%A7%D9%84%D8%AA%D9%86%D8%BA%D8%B3%D8%AA%D9%86.md)
+
+* [البحث عن مطاحن الادواجن](../41/%D8%A7%D9%84%D8%A8%D8%AD%D8%AB%20%D8%B9%D9%86%20%D9%85%D8%B7%D8%A7%D8%AD%D9%86%20%D8%A7%D9%84%D8%A7%D8%AF%D9%88%D8%A7%D8%AC%D9%86.md)

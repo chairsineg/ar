@@ -240,4 +240,14 @@ allis chalmers and Manufacturer hydro cone crusher parts superior allis gyratory
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?l=ar&contact&k=chancador+%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%D9%8A%D9%86+headcrusher+%D9%82%D8%B5%D9%8A%D8%B1%D8%A9)
 
-{{links}}
+* [شركة الصلب الخاص φ 114 تصميم سلس أنابيب الصلب المصنع والمعدات الرئيسية](../45/%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84%D8%B5%D9%84%D8%A8%20%D8%A7%D9%84%D8%AE%D8%A7%D8%B5%20%CF%86%20114%20%D8%AA%D8%B5%D9%85%D9%8A%D9%85%20%D8%B3%D9%84%D8%B3%20%D8%A3%D9%86%D8%A7%D8%A8%D9%8A%D8%A8%20%D8%A7%D9%84%D8%B5%D9%84%D8%A8%20%D8%A7%D9%84%D9%85%D8%B5%D9%86%D8%B9%20%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9.md)
+
+* [الكرة مطحنة لتطبيق صحيفة الذهب أيونات الأسعار](../45/%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D9%84%D8%AA%D8%B7%D8%A8%D9%8A%D9%82%20%D8%B5%D8%AD%D9%8A%D9%81%D8%A9%20%D8%A7%D9%84%D8%B0%D9%87%D8%A8%20%D8%A3%D9%8A%D9%88%D9%86%D8%A7%D8%AA%20%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1.md)
+
+* [تحتاج مستشارا للمنجم لخام الحديد في ماليزيا](../44/%D8%AA%D8%AD%D8%AA%D8%A7%D8%AC%20%D9%85%D8%B3%D8%AA%D8%B4%D8%A7%D8%B1%D8%A7%20%D9%84%D9%84%D9%85%D9%86%D8%AC%D9%85%20%D9%84%D8%AE%D8%A7%D9%85%20%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF%20%D9%81%D9%8A%20%D9%85%D8%A7%D9%84%D9%8A%D8%B2%D9%8A%D8%A7.md)
+
+* [مصانع القرمود في تونس](../42/%D9%85%D8%B5%D8%A7%D9%86%D8%B9%20%D8%A7%D9%84%D9%82%D8%B1%D9%85%D9%88%D8%AF%20%D9%81%D9%8A%20%D8%AA%D9%88%D9%86%D8%B3.md)
+
+* [الهواء الناقل](../45/%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1%20%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84.md)
+
+* [مجموعة معدات crusherplete الحجر](../44/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20crusherplete%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1.md)
